@@ -1,4 +1,4 @@
-
+Enhance your SaferVPN experience with automatic SaferVPN Module | money-back-guarantee + OpenVPN-support, the #1 module. Includes money-back-guarantee and OpenVPN-support for a
 
 
 
